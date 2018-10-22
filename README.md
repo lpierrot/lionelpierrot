@@ -1,5 +1,5 @@
-# INDIAN SUMMER
-# *Emily Elizabeth Dickinson*
+**INDIAN SUMMER**
+# *Emily Elizabeth Dickinson**
 
  These are the days when birds come back,
  A very few, a bird or two,
@@ -25,5 +25,5 @@
  Thy consecrated bread to break,
  Taste thine immortal wine!
     
- _For poem view link below_  
+ **_For poem view link below_** 
  http://www.public-domain-poetry.com/emily-elizabeth-dickinson/indian-summer-13575
