@@ -25,5 +25,5 @@
  Thy consecrated bread to break,
  Taste thine immortal wine!
     
- **_For poem view link below_** 
+ *_For the poem see link below_*
  http://www.public-domain-poetry.com/emily-elizabeth-dickinson/indian-summer-13575
