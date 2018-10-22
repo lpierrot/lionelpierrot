@@ -3,7 +3,7 @@
 
  These are the days when birds come back,
  A very few, a bird or two,
- To take a backward look._
+ To take a backward look.
  
  These are the days when skies put on
  The old, old sophistries of June,
